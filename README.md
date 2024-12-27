@@ -15,7 +15,8 @@
 
 - ⚡ Fun fact **I think i am not funny**
 
-<img src="https://media.tenor.com/UTrLSr85tYEAAAAM/happy-cat-cat.gif"/>
+<img src="https://media.tenor.com/UTrLSr85tYEAAAAM/happy-cat-cat.gif"/><img src="https://i.pinimg.com/originals/e4/26/70/e426702edf874b181aced1e2fa5c6cde.gif" height="200px" align="right"/>
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
